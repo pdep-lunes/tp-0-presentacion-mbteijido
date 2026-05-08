@@ -16,3 +16,10 @@ fantasía y ciencia ficción aunque también he leído policiales y suspenso.
 - Me gusta dibujar y pintar, hice 4 años de arte.
 - Hice varios hobbies a lo largo de mí vida: patinaje sobre hielo, esgrima, voley, gimnasia y pintura.
 - Tengo dos gatas que se llaman Nika y Kira (no por el de Death Note, pero ví el anime).
+
+  ![foto](https://media.discordapp.net/attachments/750396652061196360/1502374832229191903/image.png?ex=69ff7b18&is=69fe2998&hm=1bd6bec6726d2d5a7fc244c07675d6f0d4133178c37f28535cde971fa26b87f7&=&format=webp&quality=lossless)
+
+  ![foto](https://media.discordapp.net/attachments/750396652061196360/1502374939293122702/image.png?ex=69ff7b32&is=69fe29b2&hm=5185ec170125e239d45ef90501ece12057d67fe75cb5f335f4be3e3831af3282&=&format=webp&quality=lossless)
+
+  ![foto](https://media.discordapp.net/attachments/750396652061196360/1502375940880076920/image.jpg?ex=69ff7c21&is=69fe2aa1&hm=93cc989c206dd6134e839d63cacfd96a81b72204752a1f58bd9a22a9cc1ad2bf&=&format=webp&width=1291&height=968)
+  
