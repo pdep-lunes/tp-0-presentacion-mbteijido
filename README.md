@@ -5,6 +5,7 @@ tp-0-presentacion-mbteijido created by GitHub Classroom
 ## Soy María Belén Teijido, tengo 20 años, es mí tercer año de carrera.
 legajo: 222.734-4
 
+Agrego foto de mí grupo de amigos, no tengo fotos sola jaja. Soy la del medio.
 ![foto](https://media.discordapp.net/attachments/750396652061196360/1502367873463615498/IMG-20260319-WA0022.jpg?ex=69ff749d&is=69fe231d&hm=a9490d4a8218d7ddcb020d06dee6f7c6b36cacbe990464a2e3c423d99e34d678&=&format=webp&width=1291&height=968)
 
 Datos random:
