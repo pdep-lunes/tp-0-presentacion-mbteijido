@@ -16,6 +16,7 @@ fantasía y ciencia ficción aunque también he leído policiales y suspenso.
 - Me gusta dibujar y pintar, hice 4 años de arte.
 - Hice varios hobbies a lo largo de mí vida: patinaje sobre hielo, esgrima, voley, gimnasia y pintura.
 - Tengo dos gatas que se llaman Nika y Kira (no por el de Death Note, pero ví el anime).
+- Mí comida favorita son las empanadas o el asado, nunca pude decidir. Pero Team salado siempre.
 
   ![foto](https://media.discordapp.net/attachments/750396652061196360/1502374832229191903/image.png?ex=69ff7b18&is=69fe2998&hm=1bd6bec6726d2d5a7fc244c07675d6f0d4133178c37f28535cde971fa26b87f7&=&format=webp&quality=lossless)
 
